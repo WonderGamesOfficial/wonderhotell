@@ -1,0 +1,1 @@
+Telif Haklarına Tabidir.
